@@ -1,4 +1,4 @@
-### Olá! Aqui está um pouco da minha ficha:
+### Olá! Breves informações:
 
 - 🌀 Experiência: Lvl 2 (Estudante de jogos na FIAP)  
 - ⚡ Habilidades: Consegue se dedicar e mergulhar em projetos  
