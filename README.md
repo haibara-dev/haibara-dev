@@ -1,4 +1,4 @@
-### Yo!
+### Yo! Aqui está minha ficha
 
 - 🐱‍💻 Personagem: Ninja (Buscam ser discretos e eficientes)
 - 🆙 Experiência: Lvl 2 (Estudante de jogos na FIAP)  
