@@ -1,4 +1,4 @@
-### Yo! Aqui está minha ficha
+### Yo! Aqui está um pouco minha ficha:
 
 - 🐱‍💻 Personagem favorito: Ninjas (Buscam ser discretos e eficientes)
 - 🆙 Experiência: Lvl 2 (Estudante de jogos na FIAP)  
